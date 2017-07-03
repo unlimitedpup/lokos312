@@ -5,6 +5,10 @@ duration: '05:00'
 view: 105
 rate: 2
 video: 'https://flashservice.xvideos.com/embedframe/12580371'
+category: 
+ - black
+tags: 
+ - big-black-cock
 priority: 0.9
 changefreq: daily
 ---

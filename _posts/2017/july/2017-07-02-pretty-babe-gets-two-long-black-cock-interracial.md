@@ -5,6 +5,12 @@ duration: '24:34'
 view: 120
 rate: 2
 video: 'https://pornfun.com/embed/29782'
+category: 
+ - black
+ - gangbang
+ - threesome
+tags: 
+ - big-black-cock
 priority: 0.9
 changefreq: daily
 ---

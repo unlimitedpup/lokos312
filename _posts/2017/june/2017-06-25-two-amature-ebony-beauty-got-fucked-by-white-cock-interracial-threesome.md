@@ -5,6 +5,11 @@ duration: '06:00'
 view: 328
 rate: 2
 video: 'https://flashservice.xvideos.com/embedframe/11053709'
+category: 
+ - black
+ - threesome
+tags: 
+ - ebony
 priority: 0.9
 changefreq: daily
 ---
