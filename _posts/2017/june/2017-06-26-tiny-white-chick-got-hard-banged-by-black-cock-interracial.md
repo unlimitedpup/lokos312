@@ -8,6 +8,8 @@ video: 'https://flashservice.xvideos.com/embedframe/25434791'
 category: 
  - black
  - outdoor
+ - busty
+ - gorgeous
 tags: 
  - big-black-cock
 priority: 0.9

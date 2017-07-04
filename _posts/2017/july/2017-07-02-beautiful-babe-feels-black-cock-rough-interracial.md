@@ -7,6 +7,9 @@ rate: 2
 video: 'https://pornfun.com/embed/30654'
 category: 
  - black
+ - gorgeous
+ - busty
+ - sextape
 tags: 
  - big-black-cock
 priority: 0.9

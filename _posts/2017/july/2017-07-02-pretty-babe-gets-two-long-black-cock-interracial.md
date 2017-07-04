@@ -9,6 +9,9 @@ category:
  - black
  - gangbang
  - threesome
+ - brunette
+ - busty
+ - gorgeous
 tags: 
  - big-black-cock
 priority: 0.9

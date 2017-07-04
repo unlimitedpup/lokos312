@@ -8,6 +8,15 @@ video: 'https://flashservice.xvideos.com/embedframe/18450281'
 category: 
  - black
  - compilation
+ - rough
+ - curvy
+ - busty
+ - gorgeous
+ - threesome
+ - blonde
+ - gangbang
+ - milf
+ - stunning
 tags: 
  - big-black-cock
 priority: 0.9

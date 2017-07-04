@@ -7,6 +7,10 @@ rate: 2
 video: 'http://pornmaki.com/embed/2218942'
 category: 
  - black
+ - rough
+ - brunette
+ - curvy
+ - busty
 tags: 
  - big-black-cock
 priority: 0.9

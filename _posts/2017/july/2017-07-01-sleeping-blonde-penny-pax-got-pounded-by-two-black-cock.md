@@ -8,6 +8,8 @@ video: 'http://fantasti.cc/embed/1105369/'
 category: 
  - black
  - threesome
+ - busty
+ - blonde
 tags: 
  - big-black-cock
 priority: 0.9

@@ -8,6 +8,10 @@ video: 'https://flashservice.xvideos.com/embedframe/25633839'
 category: 
  - black
  - wife
+ - gorgeous
+ - stunning
+ - rough
+ - busty
 tags: 
  - big-black-cock
 priority: 0.9

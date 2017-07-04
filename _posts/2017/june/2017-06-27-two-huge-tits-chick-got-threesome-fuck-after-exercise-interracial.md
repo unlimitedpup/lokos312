@@ -9,6 +9,10 @@ category:
  - black
  - threesome
  - outdoor
+ - rough
+ - busty
+ - curvy
+ - brunette
 tags: 
  - big-black-cock
 priority: 0.9

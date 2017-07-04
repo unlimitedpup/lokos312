@@ -7,6 +7,10 @@ rate: 2
 video: 'http://fantasti.cc/embed/42707/'
 category: 
  - black
+ - busty
+ - blonde
+ - stunning
+ - wife
 tags: 
  - big-black-cock
 priority: 0.9

@@ -8,6 +8,8 @@ video: 'https://flashservice.xvideos.com/embedframe/27557983'
 category: 
  - black
  - gangbang
+ - rough
+ - busty
 tags: 
  - big-black-cock
 priority: 0.9

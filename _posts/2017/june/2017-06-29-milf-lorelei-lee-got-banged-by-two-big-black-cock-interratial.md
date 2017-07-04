@@ -8,6 +8,10 @@ video: 'https://flashservice.xvideos.com/embedframe/15362125'
 category: 
  - black
  - threesome
+ - blonde
+ - rough
+ - busty
+ - curvy
 tags: 
  - big-black-cock
 priority: 0.9

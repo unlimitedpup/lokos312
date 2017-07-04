@@ -7,6 +7,10 @@ rate: 2
 video: 'https://flashservice.xvideos.com/embedframe/344753'
 category: 
  - black
+ - blonde
+ - busty
+ - gorgeous
+ - rouch
 tags: 
  - big-black-cock
 priority: 0.9

@@ -8,6 +8,7 @@ video: 'https://pornfun.com/embed/31028'
 category: 
  - black
  - wife
+ - curvy
 tags: 
  - big-black-cock
 priority: 0.9

@@ -7,6 +7,8 @@ rate: 2
 video: 'http://pornmaki.com/embed/2262772'
 category: 
  - black
+ - asian
+ - busty
 tags: 
  - big-black-cock
 priority: 0.9

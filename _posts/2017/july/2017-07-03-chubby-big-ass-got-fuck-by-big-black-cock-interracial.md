@@ -7,6 +7,7 @@ rate: 2
 video: 'http://fantasti.cc/embed/684453/'
 category: 
  - black
+ - busty
 tags: 
  - big-black-cock
 priority: 0.9

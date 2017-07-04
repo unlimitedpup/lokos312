@@ -8,6 +8,9 @@ video: 'https://pornfun.com/embed/30430'
 category: 
  - black
  - wife
+ - busty
+ - blonde
+ - sextape
 tags: 
  - big-black-cock
 priority: 0.9

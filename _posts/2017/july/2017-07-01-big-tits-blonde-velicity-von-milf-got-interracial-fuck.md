@@ -7,6 +7,9 @@ rate: 2
 video: 'http://pornmaki.com/embed/2235222'
 category: 
  - black
+ - milf
+ - curvy
+ - blonde
 tags: 
  - big-black-cock
 priority: 0.9

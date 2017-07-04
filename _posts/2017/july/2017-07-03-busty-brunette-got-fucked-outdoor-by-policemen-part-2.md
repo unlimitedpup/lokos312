@@ -7,6 +7,9 @@ rate: 2
 video: 'http://fantasti.cc/embed/1283943/'
 category: 
  - black
+ - busty
+ - brunette
+ - stunning
 tags: 
  - big-black-cock
 priority: 0.9

@@ -7,6 +7,10 @@ rate: 2
 video: 'https://flashservice.xvideos.com/embedframe/26805571'
 category: 
  - black
+ - rough
+ - busty
+ - curvy
+ - brunette
 tags: 
  - big-black-cock
 priority: 0.9
